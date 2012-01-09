@@ -1,0 +1,1 @@
+http://blog.byndyu.ru/2011/01/ddd.html
